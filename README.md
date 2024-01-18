@@ -6,6 +6,6 @@ password=123
 
 
 
-you can dont know how to make website 
+ do you want know how to make this typ website 
 
 video link heare---->https://youtu.be/7WtCiOD85hE
